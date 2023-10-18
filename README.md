@@ -1,1 +1,0 @@
-# Bright-Ideas-consultating-NM2023TMID10423-
